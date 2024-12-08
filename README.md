@@ -1,11 +1,13 @@
-hello im **HABIT**, calling me the names of my skins is okay too
+hihi call me **HABIT** or the name of my skin
 <br />
 <br />
-– **it that he**
+**it that he** ???
+<br />
+man guy thing
 <br />
 borderline + narcissistic pd
 <br />
-– 7teen y.o
+7teen y.o
 <br />
 gangbrained & alternatekin
 <br />
@@ -13,24 +15,18 @@ gangbrained & alternatekin
 ![Untitled504_20241208011433](https://github.com/user-attachments/assets/31c4b4cc-50d7-4327-8d6e-dcbdf9670f71)
 <br />
 <br />
-jimmy irl, pls dont let that put you off sitting with or chatting wiht me
+hello im jimmy, pls dont let that put you off
 <br />
-**cuddles always welcome**
+sitting with me or saying hello, i dont bite
 <br />
-if it seems ive ignored you, it probably wasnt intentional. i dont pay much attention
+**cuddles always welcome**!!! no need to ask
 <br />
 <br />
-**PLS DO**:
+**discord**: @unhabitable
 <br />
-ask for my discord
-<br />
-friend me
-<br />
-sit with me
-<br />
-sign my guestbook
-<br />
-send gimmicks through my [WIP]!!
+[spotify](https://open.spotify.com/user/31rkzc4linzxbsxayhxubhgmct54) | 
+[straw.page](https://bootycheekfreak.straw.page) | 
+[roblox](https://www.roblox.com/users/2539845188/profile)
 <br />
 <br />
 ![Untitled504_20241208011351](https://github.com/user-attachments/assets/baee59ad-5be8-4b5f-b1eb-f9ad172556e0) 
