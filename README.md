@@ -1,21 +1,10 @@
-hihi call me **HABIT** or the name of my skin
-<br />
-<br />
-man guy thing
-<br />
-borderline + narcissistic pd
-<br />
-7teen y.o
-<br />
-gangbrained & alternatekin
-<br />
-<br />
+
 ![Untitled504_20241208011433](https://github.com/user-attachments/assets/31c4b4cc-50d7-4327-8d6e-dcbdf9670f71)
 <br />
 <br />
 hello im jimmy, pls dont let that put you off
 <br />
-sitting with me or saying hello, i dont bite
+sitting with me or saying hello, i dont bite.
 <br />
 **cuddles always welcome**!!! no need to ask
 <br />
