@@ -1,8 +1,6 @@
 hihi call me **HABIT** or the name of my skin
 <br />
 <br />
-**it that he** ???
-<br />
 man guy thing
 <br />
 borderline + narcissistic pd
@@ -25,7 +23,7 @@ sitting with me or saying hello, i dont bite
 **discord**: @unhabitable
 <br />
 [spotify](https://open.spotify.com/user/31rkzc4linzxbsxayhxubhgmct54) | 
-[straw.page](https://bootycheekfreak.straw.page) | 
+[straw.page](https://unhabitable.straw.page) | 
 [roblox](https://www.roblox.com/users/2539845188/profile)
 <br />
 <br />
