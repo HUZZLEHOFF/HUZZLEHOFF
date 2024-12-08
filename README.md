@@ -34,16 +34,3 @@ send gimmicks through my [WIP]!!
 <br />
 <br />
 ![Untitled504_20241208011351](https://github.com/user-attachments/assets/baee59ad-5be8-4b5f-b1eb-f9ad172556e0) 
-<br />
-<br />
-**more kins. ..**
-<br />
-<br />
-![Untitled505_20241208035142](https://github.com/user-attachments/assets/06ec2484-834f-45e2-8695-1e61a6d9f150)
-<br />
-![Untitled505_20241208030310](https://github.com/user-attachments/assets/c690253a-83ac-4811-8183-2598c030261a)
-<br />
-![Untitled505_20241208040654](https://github.com/user-attachments/assets/a743b757-1eaa-45da-b70b-a1dfb91cdf2b)
-<br />
-
- 
