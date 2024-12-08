@@ -45,8 +45,5 @@ send gimmicks through my [WIP]!!
 <br />
 ![Untitled505_20241208040654](https://github.com/user-attachments/assets/a743b757-1eaa-45da-b70b-a1dfb91cdf2b)
 <br />
-<br />
-**[WIP]... ..**
-
 
  
