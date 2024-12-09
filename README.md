@@ -16,10 +16,8 @@ hello im **habit/jimmy**, pls dont feel uncomfy
 <br />
 <br />
 i have **bpd & npd**
-<br />and i cling to new people very quickly
-<br />and intensely
-<br />im a big jokester, if im GENUINELY upset
-<br />or pissed off you will know
+<br />and i cling to new people very quickly and intensely
+<br />im a big jokester, if im GENUINELY upset or pissed off you will know
 <br />
 <br />
 ![Untitled504_20241208011351](https://github.com/user-attachments/assets/baee59ad-5be8-4b5f-b1eb-f9ad172556e0) 
