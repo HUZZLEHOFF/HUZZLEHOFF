@@ -12,8 +12,8 @@ hello im **habit**. im a big **jimmy** irl but pls dont
 polle is big comfort to me, pls dont make it weird. 
 <br />unless its just for jokes (ノ′Дヾ)
 
-*also im not ttrying to be weird by sitting*
-<br />*with you if you have a polle skin* ˊᴖˋ 
+also im not trying to be weird if i sit with
+<br />you and you have a polle skin,,, pls stop moving away ˊᴖˋ 
 
 ![GIF_20241210_184922_463](https://github.com/user-attachments/assets/71c30c9e-0d3e-47e7-89af-b83712612072)
 
