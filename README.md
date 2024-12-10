@@ -25,7 +25,7 @@ also im not trying to be weird if i sit with
 
 ![GIF_20241210_184922_463](https://github.com/user-attachments/assets/71c30c9e-0d3e-47e7-89af-b83712612072)
 
-i have honestly very reactive **bpd & npd**, im sorry
+i have honestly very reactive **bpd & npd**, im sorry.
 <br />i cling to new people very quickly and intensely and
 <br />will take things to heart out of nowhere.
 <br /><ins>please be gentle with me.</ins>
