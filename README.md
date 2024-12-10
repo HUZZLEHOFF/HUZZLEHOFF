@@ -2,10 +2,10 @@
 
 ![Untitled507_20241209184124](https://github.com/user-attachments/assets/ed475fe5-9a76-4d68-906e-546327dcded8)
 
-hello im **habit/jimmy**, pls dont feel uncomfy
-<br />to come sit with me or chat to me, i dont bite
+hello im **habit**. im a big **jimmy** irl but pls dont
+<br />be put off sitting with me or chatting to me, i dont bite
 
- **c & h always welcome**!!! (´u｀*)
+ **c & h always welcome** (`u｀*)
 
 ![GIF_20241210_180806_731](https://github.com/user-attachments/assets/dd41a22a-9751-4ccc-abcb-bb687c60d3e7)
 
@@ -23,7 +23,7 @@ polle is big comfort to me, pls dont make it weird.
 ![GIF_20241210_184922_463](https://github.com/user-attachments/assets/71c30c9e-0d3e-47e7-89af-b83712612072)
 
 i do have **bpd & npd** and it does show, im quite reactive
-<br />and i cling to new people very quickly and intensely!!!
+<br />and i cling to new people very quickly and intensely
 
 no dni just dont be a twat
 <br />
