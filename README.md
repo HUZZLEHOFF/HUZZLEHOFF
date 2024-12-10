@@ -12,6 +12,9 @@ hello im **habit**. im a big **jimmy** irl but pls dont
 polle is big comfort to me, pls dont make it weird. 
 <br />unless its just for jokes (ノ′Дヾ)
 
+*also im not ttrying to be weird by sitting*
+<br />*with you if you have a polle skin* ˊᴖˋ 
+
 ![GIF_20241210_184922_463](https://github.com/user-attachments/assets/71c30c9e-0d3e-47e7-89af-b83712612072)
 
 **discord**: @unhabitable
@@ -22,13 +25,12 @@ polle is big comfort to me, pls dont make it weird.
 
 ![GIF_20241210_184922_463](https://github.com/user-attachments/assets/71c30c9e-0d3e-47e7-89af-b83712612072)
 
-i do have **bpd & npd** and it does show, im quite reactive
+i have **bpd & npd** and it does show, im quite reactive
 <br />and i cling to new people very quickly and intensely
 
-no dni just dont be a twat
+thankyou for reading
 <br />
 <br />
-
 ![Untitled504_20241208011351](https://github.com/user-attachments/assets/baee59ad-5be8-4b5f-b1eb-f9ad172556e0) 
 
 ![GIF_20241210_173553_280](https://github.com/user-attachments/assets/ca5a7dbd-5679-46b9-959e-67270db47f85)
