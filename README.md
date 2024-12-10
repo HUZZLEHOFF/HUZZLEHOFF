@@ -7,9 +7,7 @@ hello im **habit/jimmy**, pls dont feel uncomfy
 
  **c & h always welcome**!!! (´u｀*)
 
-
 ![GIF_20241210_180806_731](https://github.com/user-attachments/assets/dd41a22a-9751-4ccc-abcb-bb687c60d3e7)
-
 
 polle is big comfort to me, pls dont make it weird. 
 <br />unless its just for jokes (ノ′Дヾ)
@@ -24,7 +22,7 @@ polle is big comfort to me, pls dont make it weird.
 
 ![GIF_20241210_184922_463](https://github.com/user-attachments/assets/71c30c9e-0d3e-47e7-89af-b83712612072)
 
-heads up i do have **bpd & npd** and it does show
+i do have **bpd & npd** and it does show, im quite reactive
 <br />and i cling to new people very quickly and intensely!!!
 
 no dni just dont be a twat
