@@ -17,7 +17,7 @@ also im not trying to be weird if i sit with
 
 ![GIF_20241210_184922_463](https://github.com/user-attachments/assets/71c30c9e-0d3e-47e7-89af-b83712612072)
 
-**discord**: @unhabitable
+**discord**: @huzzlehoff
 <br />
 [spotify](https://open.spotify.com/user/31rkzc4linzxbsxayhxubhgmct54) | 
 [straw.page](https://unhabitable.straw.page) | 
