@@ -2,7 +2,7 @@
 
 ![Untitled507_20241209184124](https://github.com/user-attachments/assets/ed475fe5-9a76-4d68-906e-546327dcded8)
 
-hello im **habit**. im a big **jimmy** irl but pls dont
+hello im **habit** or **hoffs**. im a big **jimmy** irl but pls dont
 <br />be put off sitting with me or chatting to me, i dont bite
 
  **c & h always welcome** (`u｀*)
@@ -26,11 +26,11 @@ also im not trying to be weird if i sit with
 ![GIF_20241210_184922_463](https://github.com/user-attachments/assets/71c30c9e-0d3e-47e7-89af-b83712612072)
 
 i have honestly very reactive **bpd & npd**, im sorry.
-<br />i cling to new people very quickly and intensely and
-<br />will take things to heart out of nowhere.
-<br /><ins>please be gentle with me.</ins>
+<br />i cling to new people very quickly and intensely, get
+<br />triggered by random ass shit and get too angry about stuff,.,
+<br /><ins>please be gentle and patient with me</ins>
 
-thankyou for reading
+thankyu for reading
 <br />
 <br />
 ![Untitled504_20241208011351](https://github.com/user-attachments/assets/baee59ad-5be8-4b5f-b1eb-f9ad172556e0) 
