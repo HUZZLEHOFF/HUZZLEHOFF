@@ -2,7 +2,7 @@
 
 ![Untitled507_20241209184124](https://github.com/user-attachments/assets/ed475fe5-9a76-4d68-906e-546327dcded8)
 
-hello im **habit** or **hoffs**. i'm a big **jimmy** irl but pls dont
+hello im **habit** or **hoffs**. i'm a big [**jimmy** irl](https://copinglink.carrd.co/) but pls dont
 <br />be put off sitting with me or chatting to me, i dont bite
 
  **c & h always welcome** (`u｀*)
