@@ -7,7 +7,8 @@
 
 <br />hello im **habit** or **hoffs**. i'm a big **jimmy** kin but pls dont
 <br />be put off sitting with me or chatting to me, i dont bite
-<br />17 | autistic | dehydrated
+
+<br />1**7** | autistic | probably dehydrated
 
 **c & h always welcome**
 
