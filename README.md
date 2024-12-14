@@ -8,7 +8,7 @@
 <br />hello im **habit** or **hoffs**. i'm a big **jimmy** kin but pls dont
 <br />be put off sitting with me or chatting to me, i dont bite
 
-<br />1**7** | autistic | probably dehydrated
+1**7** | autistic | probably dehydrated
 
 **c & h always welcome**
 
@@ -30,11 +30,13 @@
 
 <ins>**please be gentle and patient with me**</ins>
 
-thankyu for reading
-<br />
-<br />
-![GIF_20241214_141849_817](https://github.com/user-attachments/assets/c8ec194a-b3c1-4c7b-9c95-4cc972305d27)
+<div>
+  <img src="https://64.media.tumblr.com/e0ff359ab91475e6e321e5b01165b5a0/59068e72674234bc-e5/s400x600/75b2dc9e1e6028818cb53e78e1ae43dd217c9657.gifv">
+</div>
 
+<br >"Ask me why, why, why I'm like this
+<br />Maybe I'm just kinda like this
+<br />I don't know, maybe I'm just like this" [♬](https://open.spotify.com/album/46XKgCOOHTZkQTdiMsBxHS)
 
   <div>
     <img src="https://64.media.tumblr.com/ecdd93b7e594a68168e56bca36c2d4e4/af1d2bd09d335007-a1/s640x960/4da8d9cf6342af7ccba37ca000bc9f16b2e6c059.pnj" width="450px">
