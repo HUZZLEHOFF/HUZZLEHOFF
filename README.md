@@ -1,31 +1,29 @@
-![GIF_20241210_173553_280](https://github.com/user-attachments/assets/ca5a7dbd-5679-46b9-959e-67270db47f85)
+<div align="center">
+  <div>
+    <img src="https://64.media.tumblr.com/3fc3f43e4fdea8269573f7078c7b9888/fc64dfe582ead904-8e/s2048x3072/23302e9d91638d541a198586d2c7f5f216f0f0ca.pnj" width="450px">
+    <br /><img src="https://64.media.tumblr.com/ecdd93b7e594a68168e56bca36c2d4e4/af1d2bd09d335007-a1/s640x960/4da8d9cf6342af7ccba37ca000bc9f16b2e6c059.pnj" width="450px">
+  </div>
 
-![Untitled507_20241209184124](https://github.com/user-attachments/assets/ed475fe5-9a76-4d68-906e-546327dcded8)
-
-hello im **habit** or **hoffs**. i'm a big [**jimmy** irl](https://copinglink.carrd.co/) but pls dont
+<br />hello im **habit** or **hoffs**. i'm a big [**jimmy** irl](https://copinglink.carrd.co/) but pls dont
 <br />be put off sitting with me or chatting to me, i dont bite
 
  **c & h always welcome** (`u｀*)
 
-![GIF_20241210_180806_731](https://github.com/user-attachments/assets/dd41a22a-9751-4ccc-abcb-bb687c60d3e7)
+ <div>
+    <img src="https://64.media.tumblr.com/9620fc8576f21ef9d74a962c4ab6de68/f62b77454022362b-12/s1280x1920/f7b2585a64d09f786f94c09851e7512b55c87390.gifv" width="450px">
+  </div>
 
-polle is **BIG** comfort to me, dont make it weird please
-<br />unless its just for jokes and i'm playing along.
-
-also i'm not trying to be weird if i sit with you
-<br />while you have a polle skin. pls stop moving away. :-(
-
-![GIF_20241210_184922_463](https://github.com/user-attachments/assets/71c30c9e-0d3e-47e7-89af-b83712612072)
-
-**discord**: @huzzlehoff
+<br />**discord**: @huzzlehoff [add me!!!!]
 <br />
 [spotify](https://open.spotify.com/user/31rkzc4linzxbsxayhxubhgmct54) | 
 [straw.page](https://unhabitable.straw.page) | 
 [colour my tree 🎄](https://colormytree.me/2024/01JF34B55CFYWZSW2YN2C0CT6M) | [rentry wip](https://rentry.co/disturbednarc/edit) 
 
-![GIF_20241210_184922_463](https://github.com/user-attachments/assets/71c30c9e-0d3e-47e7-89af-b83712612072)
-
-reactive and disturbed **borderline narcissist**
+ <div>
+    <img src="https://64.media.tumblr.com/9620fc8576f21ef9d74a962c4ab6de68/f62b77454022362b-12/s1280x1920/f7b2585a64d09f786f94c09851e7512b55c87390.gifv" width="450px">
+</div>
+     
+<br>reactive and disturbed **borderline narcissist**
 <br />i cling to new people very quickly and intensely, get
 <br />triggered by random shit and get too angry about stuff
 
@@ -34,6 +32,10 @@ reactive and disturbed **borderline narcissist**
 thankyu for reading
 <br />
 <br />
-![Untitled504_20241208011351](https://github.com/user-attachments/assets/baee59ad-5be8-4b5f-b1eb-f9ad172556e0) 
+![GIF_20241214_141849_817](https://github.com/user-attachments/assets/c8ec194a-b3c1-4c7b-9c95-4cc972305d27)
 
-![GIF_20241210_173553_280](https://github.com/user-attachments/assets/ca5a7dbd-5679-46b9-959e-67270db47f85)
+
+  <div>
+    <img src="https://64.media.tumblr.com/ecdd93b7e594a68168e56bca36c2d4e4/af1d2bd09d335007-a1/s640x960/4da8d9cf6342af7ccba37ca000bc9f16b2e6c059.pnj" width="450px">
+    <br /><img src="https://64.media.tumblr.com/3fc3f43e4fdea8269573f7078c7b9888/fc64dfe582ead904-8e/s2048x3072/23302e9d91638d541a198586d2c7f5f216f0f0ca.pnj" width="450px">
+  </div>
