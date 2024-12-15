@@ -27,7 +27,7 @@ hello im **habit** or **hoffs**. i'm a big **jimmy** kin but pls dont
     <img src="https://64.media.tumblr.com/9620fc8576f21ef9d74a962c4ab6de68/f62b77454022362b-12/s1280x1920/f7b2585a64d09f786f94c09851e7512b55c87390.gifv" width="450px">
 </div>
      
-<br>reactive and disturbed **borderline narcissist**
+<br>unmedicated and disturbed **borderline narcissist**
 <br />i cling to new people very quickly and intensely, get
 <br />triggered by random shit and get too angry about stuff
 
