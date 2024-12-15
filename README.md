@@ -18,7 +18,8 @@
 
 <br />**discord**: @huzzlehoff
 <br />[straw.page](https://unhabitable.straw.page) | 
-[colour my tree 🎄](https://colormytree.me/2024/01JF34B55CFYWZSW2YN2C0CT6M) | [rentry wip](https://rentry.co/disturbednarc) 
+[colour my tree 🎄](https://colormytree.me/2024/01JF34B55CFYWZSW2YN2C0CT6M) <img src="https://cdn.discordapp.com/emojis/1245604045322715207.webp?size=128" width="25px">
+<br />[rentry](https://rentry.co/disturbednarc) | [guns.lol](https://guns.lol/disturbednarc)
 
  <div>
     <img src="https://64.media.tumblr.com/9620fc8576f21ef9d74a962c4ab6de68/f62b77454022362b-12/s1280x1920/f7b2585a64d09f786f94c09851e7512b55c87390.gifv" width="450px">
@@ -42,3 +43,5 @@
     <img src="https://64.media.tumblr.com/ecdd93b7e594a68168e56bca36c2d4e4/af1d2bd09d335007-a1/s640x960/4da8d9cf6342af7ccba37ca000bc9f16b2e6c059.pnj" width="450px">
     <br /><img src="https://64.media.tumblr.com/3fc3f43e4fdea8269573f7078c7b9888/fc64dfe582ead904-8e/s2048x3072/23302e9d91638d541a198586d2c7f5f216f0f0ca.pnj" width="450px">
   </div>
+
+<img src="https://komarev.com/ghpvc/?username=UNHABITABLEs&label=stalkers%20&color=fe0914&style=flat"
