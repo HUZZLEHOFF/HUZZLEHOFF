@@ -8,7 +8,7 @@
 <br />hello im **habit** or **hoffs**. i'm a big **jimmy** kin but pls dont
 <br />be put off sitting with me or chatting to me, i dont bite
 
-**c & h always welcome**
+**c & h usually welcome**
 <div>
   <img src="https://komarev.com/ghpvc/?username=UNHABITABLE&label=weirdos%20&color=9f211b&"
 </div>
@@ -17,7 +17,7 @@
     <img src="https://64.media.tumblr.com/9620fc8576f21ef9d74a962c4ab6de68/f62b77454022362b-12/s1280x1920/f7b2585a64d09f786f94c09851e7512b55c87390.gifv" width="450px">
   </div>
 
-<br />**discord**: @huzzlehoff
+<br />**discord**: @unhabitable
 <br />[straw.page](https://unhabitable.straw.page) | 
 [colour my tree 🎄](https://colormytree.me/2024/01JF34B55CFYWZSW2YN2C0CT6M) <img src="https://cdn.discordapp.com/emojis/1245604045322715207.webp?size=128" width="25px">
 <br />[rentry](https://rentry.co/disturbednarc) | [guns.lol](https://guns.lol/disturbednarc)
