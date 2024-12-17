@@ -19,7 +19,7 @@ hello im **habit** or **hoffs**. i'm a big **jimmy** kin but pls dont
   </div>
 
 <br />**discord**: frqs not open
-<br />[straw.page](https://unhabitable.straw.page) | 
+<br />[straw.page under construction] | 
 [colour my tree 🎄](https://colormytree.me/2024/01JF34B55CFYWZSW2YN2C0CT6M) <img src="https://cdn.discordapp.com/emojis/1245604045322715207.webp?size=128" width="25px">
 <br />[rentry](https://rentry.co/disturbednarc) | [guns.lol](https://guns.lol/disturbednarc) | [patreon](https://www.patreon.com/preview/campaign?u=119859415&fan_landing=true&view_as=public)
 
