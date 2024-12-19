@@ -39,7 +39,8 @@ hello im **habit** or **hoffs**. i'm a big **jimmy** kin but pls dont
 </div>
 
 
-<br >"UNHABITABLE, why should people care about UNHABITABLE?"
+<br >"UNHABITABLE, why should people care about UN-HABITABLE?
+<br />why should people care?"
 <br />"They shouldn't, I'm not shit. I actually suck"
 
   <div>
