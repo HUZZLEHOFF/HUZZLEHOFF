@@ -7,7 +7,8 @@
   </div>
 
 hello im **habit** or **hoffs**. i'm a big **jimmy** kin but pls dont
-<br />be put off sitting with me or chatting to me, i dont bite
+<br />be put off sitting with me or chatting to me, i dont bite.
+<br />additionally **benrey** irl, youll see me as my benrey skin a lot
 
 **c & h usually welcome**
 <div>
@@ -31,14 +32,14 @@ hello im **habit** or **hoffs**. i'm a big **jimmy** kin but pls dont
 <br />i cling to new people very quickly and intensely, get
 <br />triggered by random shit and get too angry about stuff
 
-<ins>**please be gentle and patient with me**</ins>
+<ins>**be gentle and patient with me**</ins>
 
 <div>
   <img src="https://64.media.tumblr.com/e0ff359ab91475e6e321e5b01165b5a0/59068e72674234bc-e5/s400x600/75b2dc9e1e6028818cb53e78e1ae43dd217c9657.gifv">
 </div>
 
 
-<br >"UNHABITABLE, why should people care more about UNHABITABLE?"
+<br >"UNHABITABLE, why should people care about UNHABITABLE?"
 <br />"They shouldn't, I'm not shit. I actually suck"
 
   <div>
