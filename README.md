@@ -38,9 +38,10 @@ hello im **habit** or **hoffs**. i'm a big **jimmy** kin but pls dont
 </div>
 
 
-<br >"Why should people care more about Habit?"
-<br />"They shouldn't, I'm not shit! I actually
-<br />suck" - ref
+<br >"UNHABITABLE, why should people care
+<br />more about UNHABITABLE?"
+<br />"They shouldn't, I'm not shit. I
+<br />actually suck" - ref
 
   <div>
     <br /><img src="https://64.media.tumblr.com/ecdd93b7e594a68168e56bca36c2d4e4/af1d2bd09d335007-a1/s640x960/4da8d9cf6342af7ccba37ca000bc9f16b2e6c059.pnj" width="450px">
