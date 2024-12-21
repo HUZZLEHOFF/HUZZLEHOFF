@@ -20,7 +20,7 @@ hello im **habit** or **hoffs**. i'm a big **jimmy** kin but pls dont
   </div>
 
 <br />**discord**: @unhabitable.org
-<br />[strawpage wip] | 
+<br />[strawpage](https://yougotmail1.straw.page) | 
 [colour my tree 🎄](https://colormytree.me/2024/01JF34B55CFYWZSW2YN2C0CT6M) <img src="https://cdn.discordapp.com/emojis/1245604045322715207.webp?size=128" width="25px">
 <br />[rentry wip] | [guns.lol](https://guns.lol/disturbednarc) | [patreon](https://www.patreon.com/preview/campaign?u=119859415&fan_landing=true&view_as=public)
 
