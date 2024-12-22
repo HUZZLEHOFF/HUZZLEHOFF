@@ -6,7 +6,7 @@
   <br /><img src="https://64.media.tumblr.com/abc6632ba88e088089684a28fc521262/97d5eaec018f3f22-25/s540x810/528c63cdc7890a902f96a0c5259434ea728456c4.gifv" width="410px">
   </div>
 
-hello im **habit** or **hoffs**. i'm a big **jimmy** kin but pls dont
+hello im **habit** or **hoffs**. i'm a big **jimmy** irl but pls dont
 <br />be put off sitting with me or chatting to me, i dont bite.
 <br />additionally **benrey** irl, youll see me as my benrey skin a lot
 
