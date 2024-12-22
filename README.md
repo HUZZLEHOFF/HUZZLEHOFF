@@ -6,9 +6,9 @@
   <br /><img src="https://64.media.tumblr.com/abc6632ba88e088089684a28fc521262/97d5eaec018f3f22-25/s540x810/528c63cdc7890a902f96a0c5259434ea728456c4.gifv" width="410px">
   </div>
 
-hello im **habit** or **hoffs**. i'm a big **jimmy** irl but pls dont
+hello im **habit** or **hoffs**. i'm a big **jimmy** kin but pls dont
 <br />be put off sitting with me or chatting to me, i dont bite.
-<br />additionally **benrey** irl, youll see me as my benrey skin a lot
+<br />additionally big fan of **benrey**, youll see me as my benrey skin a lot
 
 **c & h usually welcome**
 <div>
@@ -28,11 +28,11 @@ hello im **habit** or **hoffs**. i'm a big **jimmy** irl but pls dont
     <img src="https://64.media.tumblr.com/9620fc8576f21ef9d74a962c4ab6de68/f62b77454022362b-12/s1280x1920/f7b2585a64d09f786f94c09851e7512b55c87390.gifv" width="450px">
 </div>
      
-<br>unmedicated and disturbed **borderline narcissist**
+<br>unmedicated and wacky **borderline narcissist** lolol
 <br />i cling to new people very quickly and intensely, get
 <br />triggered by random shit and get too angry about stuff
 
-<ins>**be gentle and patient with me**</ins>
+<ins>**so like just be patient and gentle w me**</ins>
 
 <div>
   <img src="https://64.media.tumblr.com/e0ff359ab91475e6e321e5b01165b5a0/59068e72674234bc-e5/s400x600/75b2dc9e1e6028818cb53e78e1ae43dd217c9657.gifv">
