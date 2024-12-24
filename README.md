@@ -6,10 +6,6 @@
   <br /><img src="https://64.media.tumblr.com/abc6632ba88e088089684a28fc521262/97d5eaec018f3f22-25/s540x810/528c63cdc7890a902f96a0c5259434ea728456c4.gifv" width="410px">
   </div>
 
-hello im **habit** or **hoffs**. i'm a big **jimmy** kin but pls dont
-<br />be put off sitting with me or chatting to me, i dont bite.
-<br />additionally big **benrey** kin, youll see me as my benrey skin a lot
-
 **c & h usually welcome**
 <div>
   <img src="https://komarev.com/ghpvc/?username=UNHABITABLE&label=weirdos%20&color=9f211b&"
@@ -39,7 +35,7 @@ hello im **habit** or **hoffs**. i'm a big **jimmy** kin but pls dont
 </div>
 
 
-<br >"UNHABITABLE, why should people care about UN-HABITABLE?
+<br >"JIMMYIRL, why should people care about JIMMY-IRL?
 <br />why should people care?"
 <br />"They shouldn't, I'm not shit. I actually suck"
 
