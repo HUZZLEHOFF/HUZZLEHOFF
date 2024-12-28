@@ -4,7 +4,7 @@
 <br>${\textsf{\color{Red}Hello, call me HABIT or Man-Eater}}$ <img src="https://cdn.discordapp.com/emojis/1313023347289751642.webp?size=128" width="40px">
       
 <img src="https://64.media.tumblr.com/054a933732d6f628f76c3975c2170bb9/04d9330141ccd020-fc/s2048x3072/5884b36de7907d422891f11ba5f72232e0f06d77.pnj" width="450px" height="8px">
-<br><img src="https://64.media.tumblr.com/abc6632ba88e088089684a28fc521262/97d5eaec018f3f22-25/s540x810/528c63cdc7890a902f96a0c5259434ea728456c4.gifv" width="500px">
+<br><img src="https://64.media.tumblr.com/abc6632ba88e088089684a28fc521262/97d5eaec018f3f22-25/s540x810/528c63cdc7890a902f96a0c5259434ea728456c4.gifv" width="480px">
 <br><img src="https://64.media.tumblr.com/054a933732d6f628f76c3975c2170bb9/04d9330141ccd020-fc/s2048x3072/5884b36de7907d422891f11ba5f72232e0f06d77.pnj" width="450px" height="8px">
 
 
@@ -17,17 +17,17 @@
 <br>**discord:** ${\textsf{\color{Red}@unhabitable.org}}$
      
 <br>[in](https://rentry.co/shut-the-fuck)terest page
-<br>i like **KMFDM**, star trek: TNG, **mouthwashing** & ${\textsf{\color{Red}HLVRAI.org}}$
+<br>i like **KMFDM**, star trek: TNG, **mouthwashing** & ${\textsf{\color{Red}HLVRAI}}$
 
 <ins>**this is lazy dawg im sorry**</ins>
 
-<br><img src="https://64.media.tumblr.com/b1ab32217a254f7c8a97ba08ecfb0501/9e7db720bc1f2355-c0/s1280x1920/58f3772759b084105a290990f1ac6127346e16c8.pnj" width="350px">
+<br><img src="https://64.media.tumblr.com/b1ab32217a254f7c8a97ba08ecfb0501/9e7db720bc1f2355-c0/s1280x1920/58f3772759b084105a290990f1ac6127346e16c8.pnj" width="320px">
 
-<img src="https://64.media.tumblr.com/054a933732d6f628f76c3975c2170bb9/04d9330141ccd020-fc/s2048x3072/5884b36de7907d422891f11ba5f72232e0f06d77.pnj" width="500px" height="8px">
-<img src="https://64.media.tumblr.com/e0ff359ab91475e6e321e5b01165b5a0/59068e72674234bc-e5/s400x600/75b2dc9e1e6028818cb53e78e1ae43dd217c9657.gifv" width="510px">
-<br><img src="https://64.media.tumblr.com/054a933732d6f628f76c3975c2170bb9/04d9330141ccd020-fc/s2048x3072/5884b36de7907d422891f11ba5f72232e0f06d77.pnj" width="500px" height="8px">
+<img src="https://64.media.tumblr.com/054a933732d6f628f76c3975c2170bb9/04d9330141ccd020-fc/s2048x3072/5884b36de7907d422891f11ba5f72232e0f06d77.pnj" width="450px" height="8px">
+<br><img src="https://64.media.tumblr.com/e0ff359ab91475e6e321e5b01165b5a0/59068e72674234bc-e5/s400x600/75b2dc9e1e6028818cb53e78e1ae43dd217c9657.gifv" width="430px">
+<br><img src="https://64.media.tumblr.com/054a933732d6f628f76c3975c2170bb9/04d9330141ccd020-fc/s2048x3072/5884b36de7907d422891f11ba5f72232e0f06d77.pnj" width="450px" height="8px">
 
-<br><img src="https://64.media.tumblr.com/9e6b754b5e2154efc0afbd80f635139a/9e7db720bc1f2355-2e/s1280x1920/854050107519599d453975886a7a5d42a2acc5a7.pnj" width="350px">
+<br><img src="https://64.media.tumblr.com/9e6b754b5e2154efc0afbd80f635139a/9e7db720bc1f2355-2e/s1280x1920/854050107519599d453975886a7a5d42a2acc5a7.pnj" width="320px">
 
 <br >"JIMMYIRL, why should people care about JIMMY-IRL?
 <br />why should people care?"
