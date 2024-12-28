@@ -17,9 +17,9 @@
 <br>**discord:** ${\textsf{\color{Red}@unhabitable.org}}$
      
 <br>[in](https://rentry.co/shut-the-fuck)terest page
-<br>i like KMFDM, star trek: TNG, mouthwashing & ${\textsf{\color{Red}HLVRAI.org}}$**
+<br>i like **KMFDM**, star trek: TNG, **mouthwashing** & ${\textsf{\color{Red}HLVRAI.org}}$
 
-<ins>**this is a wip pls**</ins>
+<ins>**this is lazy dawg im sorry**</ins>
 
 <br><img src="https://64.media.tumblr.com/b1ab32217a254f7c8a97ba08ecfb0501/9e7db720bc1f2355-c0/s1280x1920/58f3772759b084105a290990f1ac6127346e16c8.pnj" width="350px">
 
