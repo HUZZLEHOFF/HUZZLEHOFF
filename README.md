@@ -10,10 +10,10 @@
 
 <br>**7**teen | benrey & ${\textsf{\color{Red}jimmy}}$ irl
 <br>**real life alternate**
-<br>i have **npd and bpd**, beware
+<br>borderline narc, i wouldnt wanna be friends with me if i were you
 
 
-<br>**socials 2 b added**: rentry | guns.lol | patreon | str[aw](https://yougotmail1.straw.page)page
+<br>**socials**: rentry wip | guns.[lol](https://guns.lol/disturbednarc) | [p](https://www.patreon.com/c/disturbednarc)atreon | str[aw](https://yougotmail1.straw.page)page
 <br>**discord:** ${\textsf{\color{Red}@unhabitable.org}}$
      
 <br>**i like KMFDM, star trek: TNG, mouthwashing, HLVRAI**
