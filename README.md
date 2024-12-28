@@ -8,16 +8,16 @@
 <br><img src="https://64.media.tumblr.com/054a933732d6f628f76c3975c2170bb9/04d9330141ccd020-fc/s2048x3072/5884b36de7907d422891f11ba5f72232e0f06d77.pnj" width="450px" height="8px">
 
 
-<br>**7**teen | benrey & ${\textsf{\color{Red}jimmy}}$ irl
+<br>**7**teen ★ benrey & ${\textsf{\color{Red}jimmy}}$ irl
 <br>**real life alternate**
-<br>borderline narc, i wouldnt wanna be friends with me if i were you
+<br>borderline narc, i wouldnt wanna be friends w me if i were you
 
 
-<br>**socials**: rentry wip | guns.[lol](https://guns.lol/disturbednarc) | [p](https://www.patreon.com/c/disturbednarc)atreon | str[aw](https://yougotmail1.straw.page)page
+<br>**socials**: rentry wip ★ guns.[lol](https://guns.lol/disturbednarc) ★ [p](https://www.patreon.com/c/disturbednarc)atreon ★ str[aw](https://yougotmail1.straw.page)page
 <br>**discord:** ${\textsf{\color{Red}@unhabitable.org}}$
      
-<br>**i like KMFDM, star trek: TNG, mouthwashing, HLVRAI**
-<br>**metalocalypse, TMC and camp camp** (cringe) [++](https://rentry.co/shut-the-fuck)
+<br>[in](https://rentry.co/shut-the-fuck)terest page
+<br>i like KMFDM, star trek: TNG, mouthwashing & ${\textsf{\color{Red}HLVRAI.org}}$**
 
 <ins>**this is a wip pls**</ins>
 
