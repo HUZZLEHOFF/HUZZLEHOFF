@@ -10,10 +10,10 @@
 
 <br>**7**teen ★ benrey & ${\textsf{\color{Red}jimmy}}$ irl
 <br>**real life alternate**
-<br>borderline narc, i wouldnt wanna be friends w me if i were you
+<br>borderline narc, beware
 
 
-<br>**socials**: rentry wip ★ guns.[lol](https://guns.lol/disturbednarc) ★ [p](https://www.patreon.com/c/disturbednarc)atreon ★ str[aw](https://yougotmail1.straw.page)page
+<br>rentry wip ★ guns.[lol](https://guns.lol/disturbednarc) ★ [p](https://www.patreon.com/c/disturbednarc)atreon ★ str[aw](https://yougotmail1.straw.page)page
 <br>**discord:** ${\textsf{\color{Red}@unhabitable.org}}$
      
 <br>[in](https://rentry.co/shut-the-fuck)terest page
