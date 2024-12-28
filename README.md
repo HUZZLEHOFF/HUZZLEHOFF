@@ -1,8 +1,7 @@
 <div align="center">
-  <div><img src="https://64.media.tumblr.com/b66c0e09b516b87d83dee9f70ec130ac/8d6d0eba405399e4-ec/s2048x3072/7260ca13f9c8f81b03789d5c767155bad126de01.pnj" width="590px">
-    <div/>
-
-<br>**Hello, call me HABIT or Man-Eater** <img src="https://cdn.discordapp.com/emojis/1313023347289751642.webp?size=128" width="40px">
+<img src="https://64.media.tumblr.com/b66c0e09b516b87d83dee9f70ec130ac/8d6d0eba405399e4-ec/s2048x3072/7260ca13f9c8f81b03789d5c767155bad126de01.pnj" width="590px">
+      
+<br>${\textsf{\color{Red}Hello, call me HABIT or Man-Eater!}}$ <img src="https://cdn.discordapp.com/emojis/1313023347289751642.webp?size=128" width="40px">
       
 <br><img src="https://64.media.tumblr.com/631310389fad0f22e1a594d2385f4a6d/9e7db720bc1f2355-03/s1280x1920/24c8f7120f0866a3d653d0dbe89a5d4ad63b7c8d.pnj" width="350px">
 
