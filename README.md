@@ -31,9 +31,6 @@ ${\textsf{\color{LightGrey}Now playing...}}$
 
 <img src="https://64.media.tumblr.com/9e6b754b5e2154efc0afbd80f635139a/9e7db720bc1f2355-2e/s1280x1920/854050107519599d453975886a7a5d42a2acc5a7.pnj" width="320px">
 
-<br >"JIMMYIRL, why should people care about JIMMY-IRL?
-<br />why should people care?"
-<br />"They shouldn't, I'm not shit. I actually suck"
 
 <br /><img src="https://64.media.tumblr.com/dc3d17717a61054beea10e6498b9e080/04d9330141ccd020-10/s2048x3072/325b1812941acecd5002d08ca215b36dbd893fb2.pnj" height="40px" width="590px">
 <br /><img src="https://64.media.tumblr.com/054a933732d6f628f76c3975c2170bb9/04d9330141ccd020-fc/s2048x3072/5884b36de7907d422891f11ba5f72232e0f06d77.pnj" width="540px" height="7px">
