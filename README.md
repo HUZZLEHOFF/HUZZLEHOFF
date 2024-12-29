@@ -1,7 +1,7 @@
 <div align="center">
 <img src="https://64.media.tumblr.com/b66c0e09b516b87d83dee9f70ec130ac/8d6d0eba405399e4-ec/s2048x3072/7260ca13f9c8f81b03789d5c767155bad126de01.pnj" width="590px">
       
-<br>${\textsf{\color{Red}Hello, call me HABIT or Man-Eater}}$ <img src="https://cdn.discordapp.com/emojis/1313023347289751642.webp?size=128" width="40px">
+<br>${\textsf{\color{Red}NOW, HERE CREEPS, PUNKS AND FREAKS IM TALKIN BOUT VIRUS FROM THE STREETS}}$
       
 <img src="https://64.media.tumblr.com/054a933732d6f628f76c3975c2170bb9/04d9330141ccd020-fc/s2048x3072/5884b36de7907d422891f11ba5f72232e0f06d77.pnj" width="450px" height="8px">
 <br><img src="https://64.media.tumblr.com/abc6632ba88e088089684a28fc521262/97d5eaec018f3f22-25/s540x810/528c63cdc7890a902f96a0c5259434ea728456c4.gifv" width="480px">
