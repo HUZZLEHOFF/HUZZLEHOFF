@@ -10,7 +10,7 @@
 
 <br>**7**teen ★ benrey & ${\textsf{\color{Red}jimmy}}$ irl
 <br>**real life alternate**
-<br>borderline narc, beware
+<br>bpd + npd haver so im super funny
 
 
 <br>rentry wip ★ guns.[lol](https://guns.lol/disturbednarc) ★ [p](https://www.patreon.com/c/disturbednarc)atreon ★ str[aw](https://yougotmail1.straw.page)page
