@@ -7,11 +7,11 @@
 <br><img src="https://64.media.tumblr.com/ce26d89bbcdbfe9e085b33f43b53fd7a/1b1b1d8c927d9be8-c4/s1280x1920/366644c0dbb7ff07fa98bd1915cc9006dcbf4b2d.pnj" width="260px">
 
 <br>${\textsf{\color{#0043ff}Hello I'm 𝐇𝐀𝐁𝐈𝐓 or 𝐇𝐎𝐅𝐅𝐒 :-)}}$
-<br>${\textsf{\color{#0043ff}7𝐭𝐞𝐞𝐧}}$ <img src="https://64.media.tumblr.com/a404105fb71eb8ea9d2c618a5d1bebdb/b4746bdbb4997815-9f/s75x75_c1/b373b5764a379488d22d13353c27cf4ab71c0050.gifv"> ${\textsf{\color{#0043ff}autistic | 𝐍𝐏𝐃 + 𝐁𝐏𝐃}}$
+<br>${\textsf{\color{#0043ff}7𝐭𝐞𝐞𝐧}}$ | ${\textsf{\color{#0043ff}autistic}}$ | ${\textsf{\color{#0043ff}𝐍𝐏𝐃 + 𝐁𝐏𝐃}}$
 
 <img src="https://64.media.tumblr.com/140feea642da1ca353e7382e55cd059e/3626127843ca9f5e-6b/s400x600/191bc194d7b9bd831bd5ab864c688901ad42cb6d.pnj" width="50px"> <img src="https://64.media.tumblr.com/10bbd09c923d922d80557a2e76a10441/3626127843ca9f5e-ab/s400x600/95d08dc0c285c5681e2ccf9bddbb88fd2dacaa54.pnj" width="50px"> <img src="https://64.media.tumblr.com/3026b2048f0d564d36825537fe3739d1/3626127843ca9f5e-78/s400x600/04adc936161a5834b11304602a399e702304a365.pnj" width="50px">
 
-${\textsf{\color{#0043ff}𝐢𝐭 𝐭𝐡𝐚𝐭 𝐡𝐞 𝐡𝐢𝐦}}$
+${\textsf{\color{#0043ff}it that he him}}$ | ${\textsf{\color{#0043ff}male terms}}$
 
 <br><img src="https://64.media.tumblr.com/d13a591b006c80ef28fae3a03148fc02/514d52d2b4d412c8-c4/s2048x3072/3b8c33bf4f5783aeb3bff9cbac423c3cf52515ed.pnj" width="400px">
 
