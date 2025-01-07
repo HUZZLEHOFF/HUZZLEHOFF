@@ -36,7 +36,6 @@ gif
 
 <br><img src="https://64.media.tumblr.com/5b0a05e348e9722a10a53ddd06b467a6/3626127843ca9f5e-94/s2048x3072/da93d4991fc1ab976eced86a69f5009d5d2b0f4f.pnj" width="460px">
 
-
-<br/>![](https://komarev.com/ghpvc/?username=your-github-JIMMYIRL&label=friends&color=0043ff&style=flat-square&abbreviated=true)
+<br/>![](https://komarev.com/ghpvc/?username=UnforseenThreat&style=flat-square&color=151515&style=for-the-badge&abbreviated=true&label=󠁪󠁪󠁝󠁝yo_mama.)
 
 <img src="https://64.media.tumblr.com/35217a9aaa59eec751dfd221eec63539/ab306451e186484a-21/s2048x3072/a3f1a3ca883ae8d91b90195e76d7bb674dcd2dea.pnj" width="800px" height="60px">
